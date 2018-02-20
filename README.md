@@ -1,2 +1,3 @@
 # hello-world
 All about me me me...
+I have brown hair and hazel eyes. I have fair skin with freckles and a slim build.
